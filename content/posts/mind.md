@@ -10,4 +10,4 @@ I is of the mind.
 
 Body is of physicality, bound in time space.
 
-What does mind what with physicality?
+What does mind want with physicality?
