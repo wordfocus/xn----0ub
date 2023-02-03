@@ -8,6 +8,6 @@ Mind  is not in time space .
 
 I is of the mind.
 
-Body is of physicality bound in time space.
+Body is of physicality, bound in time space.
 
 What does mind what with physicality?
