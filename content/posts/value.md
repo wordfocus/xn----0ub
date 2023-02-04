@@ -4,3 +4,6 @@ hero_image: "/content/images/maksim-shutov-JOEvZOTfp64-unsplash.jpg"
 title: Value
 
 ---
+This is better then that , when both exist both in time space.
+
+Value is a poor compensation for existence. 
