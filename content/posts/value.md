@@ -4,6 +4,8 @@ hero_image: "/content/images/maksim-shutov-JOEvZOTfp64-unsplash.jpg"
 title: Value
 
 ---
-This is better then that , when both exist both in time space.
+This is better then that , when both exist  in time space. 
 
-Value is a poor compensation for existence. 
+Scary, bad , dangerous, unfair, sick, ugly, painful.
+
+What reacts to what?
